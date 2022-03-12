@@ -29,3 +29,10 @@ Taller desarrollado por el **Google Developer Student Club de la Universidad de 
 - El cine
 - Leer
 - Salir a correr
+
+## Asistentes
+
+* Viri Olalde
+- Me gusto la mentoria estuvo muy ludica👍
+- Me gusta correr 🏃‍♀️
+- Comer chocolates y dormir 😴
